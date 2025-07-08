@@ -20,4 +20,4 @@
 
 本站所有资源来自互联网公开渠道，仅供学习参考之用，禁止非法传播或下载。如您所在地法律不允许浏览成人内容，请自觉关闭页面。我们将持续更新内容、优化体验，为广大用户提供稳定、安全、干净的日本AV免费播放平台，欢迎收藏并每日访问。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd64069/64068 ）</span>
